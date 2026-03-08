@@ -1,0 +1,2 @@
+# SRIE-menifesto-
+Conceptual fodder
